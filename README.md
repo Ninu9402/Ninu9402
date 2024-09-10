@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ninadsharma27@gmail.com**
 
-- ⚡ Fun fact **I love reading and hearing music**
+- ⚡ Fun fact **I love reading BOOKS and hearing music**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
